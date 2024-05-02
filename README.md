@@ -1,2 +1,1 @@
--  Hello, I’m @PeldL
-- Faz u eli
+HELLO BRATAN FAZ U ELI CARAI
