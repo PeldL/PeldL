@@ -1,1 +1,1 @@
-Justo na minha opinião
+HELLO BRATAN FAZ U ELI CARAI
